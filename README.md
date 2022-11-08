@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @malikkamranabid
+- 👀 I have experience of more than 7 years as full stack engineer
+- 🌱 I’m currently working with Seventh Ave and looking for new opportunity.
+- 📫 You can reach me out via my email malikkamranabid@gmail.com.
